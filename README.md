@@ -1,0 +1,1 @@
+# AI-Data-Collector---Tech-and-Fashion-Images
